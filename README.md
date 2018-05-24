@@ -74,4 +74,6 @@ https://community.bigquant.com/t/%E5%AD%A6%E4%B9%A0%E9%87%8F%E5%8C%96%E6%8A%95%E
     
     - http://doudouso.com/fetch_file.php?loc=SHJFNlNKQXBnOWVUdmxmVWlQeGlITmJvZWx3bkFnMUwrUGs2emZLaVZWRGFaVUlJRm9QTUkxUHBVZThqUmF1ZA%3D%3D&t=Vlp1UG4yV3V0OFVWa1ZLdkJ2S3hLdz09&f=%E4%BF%A1%E5%8F%B7%E4%B8%8E%E5%99%AA%E5%A3%B0
     
-- 
+# 技术指标
+
+https://www.joinquant.com/study?f=home&m=memu#strategy-application
