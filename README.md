@@ -88,7 +88,7 @@ https://www.joinquant.com/study?f=home&m=memu#strategy-application
 
     - https://pan.baidu.com/s/1eQ0Kn7s
 
-- https://www.bilibili.com/video/av10583167/
+- http://www.chanluntan.com/forum.php?mod=viewthread&tid=10538
 
 - 缠论简介及实践反思
 
