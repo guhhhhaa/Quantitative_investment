@@ -77,3 +77,15 @@ https://community.bigquant.com/t/%E5%AD%A6%E4%B9%A0%E9%87%8F%E5%8C%96%E6%8A%95%E
 # 技术指标
 
 https://www.joinquant.com/study?f=home&m=memu#strategy-application
+
+# 缠论
+
+- 趋势定位：缠中说禅理论精解pdf下载地址：（解压密码：www.gucuan.com)
+
+    - 链接：https://pan.baidu.com/s/1Eebo8jl_TI5r4e8EyUcpcw 密码：9r15
+
+- 市场哲学的数学原理完全配图手册2015.pdf
+
+    - https://pan.baidu.com/s/1eQ0Kn7s
+
+- https://www.bilibili.com/video/av10583167/
