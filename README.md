@@ -89,3 +89,7 @@ https://www.joinquant.com/study?f=home&m=memu#strategy-application
     - https://pan.baidu.com/s/1eQ0Kn7s
 
 - https://www.bilibili.com/video/av10583167/
+
+- 缠论简介及实践反思
+
+    - http://doc.xueqiu.com/14afbbbe1d14f3fe898851d3.pdf
